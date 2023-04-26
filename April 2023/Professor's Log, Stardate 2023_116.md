@@ -4,7 +4,7 @@ While every bit of congratulations are in order to that streamer, I find that so
 
 Perhaps it's a bit of both.  Sure, that streamer worked their ass off (I would say literally but then again that would be a rather humorous albeit gross sight to behold) to get to 10,000 subscribers in a month, making them the top streamer on the platform.  From what little I know, that person has spent countless hours building up a viable, if not somewhat profitable, presence as a full-time content creator.  Put in the time and effort, and voila!  Reach the right audience and you're the next Internet sensation.  Sure, I know quite a few streamers who have worked hard to reach 10,000 *followers*, but they're all mostly females.  It's a hard reality: sex sells.  Show off a little skin, put on a little makeup, and you're raking in the views.  Put up an OnlyFans or Fansly page, don't show off your entire body (or do), and you're making a decent amount of cash with each PPV and livestream.
 
-Where does that leave me, I wonder?  Someone who is apporaching fifty years of age, a little overweight, isn't all that attractive, doesn't play first-person shooters...
+Where does that leave me, I wonder?  Someone who is approaching fifty years of age, a little overweight, isn't all that attractive, doesn't play first-person shooters...
 
 Oh, I know, let's start the list of reasons why I'm *not* a successful streamer.  I'm sure someone will eventually call me out and say they're "excuses", but as the song goes, "You'll stumble in my footsteps, keep the same appointments I've kept, if you try walking in my shoes."
 
