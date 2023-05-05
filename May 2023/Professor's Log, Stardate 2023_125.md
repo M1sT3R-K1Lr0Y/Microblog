@@ -8,4 +8,4 @@ But back to my opening statement.  Was this person I refer to ever truly friends
 
 Then again, as far as the aforementioned streamer is concerned, and also in the eyes of my child's mother, I'm just an object that no longer has any worth, meaning, or value.  And to be honest, it hurts.  I'm honestly not sure how to get past this one other than to will myself to keep moving.
 
-
+Best song to describe this feeling: ["Just Like All of Your Toys" by The Monkees (1967)](https://www.youtube.com/watch?v=whJVDuyl3xc)
